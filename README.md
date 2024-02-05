@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming and Artificial Intelligence
 - 🌱 I’m currently learning lot's and lot's
 - 💞️ I’m looking to collaborate on anything cool
-- 📫 How to reach me - email: olufisayo.oolumuyiwa@kpmg.co.uk
+- 📫 How to reach me - email: olufisayo.olumuyiwa@kpmg.co.uk
 - 😄 Pronouns: HEEEE / HIIIIIMMN
 - ⚡ Fun fact: I am very random
 
